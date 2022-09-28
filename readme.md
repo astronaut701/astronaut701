@@ -1,0 +1,3 @@
+Hello, I'm Astronaut701! (And before you ask, no, I don't know why I picked 701 out of all numbers, sorry.) ¯\\_(ツ)_/¯
+
+This profile page is a WIP...
